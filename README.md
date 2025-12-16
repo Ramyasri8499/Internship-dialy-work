@@ -1,1 +1,1 @@
-# Internship-dialy-work
+# Internship-daily-work
